@@ -1,1 +1,0 @@
-# infosys-virtual-internship
